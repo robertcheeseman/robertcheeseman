@@ -10,6 +10,7 @@ Some of my other interests include:
 - Snowboarding
 - Collecting vinyl records
 - Concerts/Shows
+- Adventuring with my wife and our pup, Marley
 <hr>
 
 ![HTML5](https://img.shields.io/badge/html5-%23E34F26.svg?style=for-the-badge&logo=html5&logoColor=white)

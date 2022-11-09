@@ -6,7 +6,7 @@ I'm really drawn to Front End development as I thoroughly enjoy the creative asp
 Some of my other interests include:
 - Audio Engineering
 - Playing Guitar and Bass
-- Travel (27 Countries and counting!)
+- Travel/Touring (27 Countries and counting!)
 - Snowboarding
 - Collecting vinyl records
 - Concerts/Shows
